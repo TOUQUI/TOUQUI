@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TOUQUI
+- 👀 I’m interested in die. 
+- 🌱 I’m currently learning C# at Cegep Garneau.
+- 💞️ I’m looking for a girl friend. 
+- I LOVE BEANS 
