@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @TOUQUI
-- 👀 I’m interested in die. 
-- 🌱 I’m currently learning C# at Cegep Garneau.
+- 👀 I wan't to die. 
+- 🌱 I’m currently learning programation at Cegep Garneau.
 - 💞️ I’m looking for a girl friend. 
-- I LOVE BEANS 
+- I LOVE BEANS
+- 9+10=21 
